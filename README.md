@@ -7,3 +7,6 @@ RESUELVO LO QUE NO TE GUSTA ... TIKIMIKIS! ;)
 
 Añade este código!
 problema resuelto 
+
+
+Nuevos Cambios JuanMASE
